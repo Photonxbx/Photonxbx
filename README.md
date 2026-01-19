@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Photonxbx
-- 👀 I’m interested in Anime
+- 👀 I’m interested in Anime, Gaming, etc.
 - 🌱 I’m currently learning Computing Languages
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: I play soccer
+- ⚡ Fun fact: I play Soccer, Wrestling, and Lacrosse
